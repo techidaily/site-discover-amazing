@@ -1,7 +1,7 @@
 ---
 title: "Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ"
-date: 2025-01-21T23:09:55.217Z
-updated: 2025-01-27T11:32:43.921Z
+date: 2025-02-06T16:38:58.932Z
+updated: 2025-02-08T16:47:15.323Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ As the Karaoki quick-tip tutorial video explains in detail, you simply create a 
 #### Watch Karaoke Software Quick Tip: Creating Custom Playlists In PCDJ Karaoki
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,17 +44,21 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/03/karaokiquicktip-customlist
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-historical-insights-at-your-fingertips-top-10-for-students/"><u>[New] 2024 Approved Historical Insights at Your Fingertips – Top 10 for Students</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-navigating-the-world-of-instagram-stories-easily/"><u>[New] 2024 Approved Navigating the World of Instagram Stories Easily</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/edit-like-a-pro-with-top-android-apps/"><u>Edit Like a Pro with Top Android Apps</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/essential-steps-to-check-your-hard-drive-health-tips-from-yl-computing/"><u>Essential Steps to Check Your Hard Drive Health: Tips From YL Computing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-poco-f5-pro-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Poco F5 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-tecno-phantom-v-flip-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Tecno Phantom V Flip to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/navigating-the-precious-metal-market-overcoming-global-challenges-with-resilient-forecasts-insights-by-yl-computing/"><u>Navigating the Precious Metal Market: Overcoming Global Challenges with Resilient Forecasts - Insights by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/overcoming-windows-glitches-proven-strategies-to-fix-recurring-system-lockups-with-yl-software-solutions/"><u>Overcoming Window's Glitches: Proven Strategies to Fix Recurring System Lockups with YL Software Solutions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/transform-your-files-into-portable-pdfs-a-comprehensive-guide-by-yl-computing/"><u>Transform Your Files Into Portable PDFs: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-blockchain-technology-and-its-connection-with-digital-currency-insights-by-yl-computing/"><u>Understanding Blockchain Technology & Its Connection with Digital Currency - Insights by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-windows-defender-smartscreen-an-in-depth-guide-yl-computings-official-insights/"><u>Understanding Windows Defender SmartScreen: An In-Depth Guide - YL Computing's Official Insights</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/voicecommand-mastery-with-android-and-gpt-synergy/"><u>VoiceCommand Mastery with Android & GPT Synergy</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-skype-chorus-select-websites-for-rhythmic-calls-for-2024/"><u>[New] The Skype Chorus Select Websites for Rhythmic Calls for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-10-firefox-screen-recorders-and-add-ons/"><u>[Updated] 2024 Approved Top 10 Firefox Screen Recorders and Add-Ons</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-use-dslr-for-facebook-live-on-you-pc-or-mac-for-2024/"><u>[Updated] How to Use DSLR for Facebook Live on You PC or Mac for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/cant-link-scanner-to-windows-solutions-and-support-by-yl-software-experts/"><u>Can't Link Scanner to Windows? Solutions and Support by YL Software Experts</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/captivating-visuals-of-traditional-and-modern-japanese-artwork-for-your-pcmobile-display-yl-software-gallery/"><u>Captivating Visuals of Traditional and Modern Japanese Artwork for Your PC/Mobile Display - YL Software Gallery</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diagnosing-your-gpu-issues-effectively-with-expert-advice-by-yl-software-solutions/"><u>Diagnosing Your GPU Issues Effectively with Expert Advice by YL Software Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/discover-the-integrated-windows-defender-feature-in-windows-10-expert-insights-by-yl-computing/"><u>Discover the Integrated Windows Defender Feature in Windows 10 - Expert Insights by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explore-traditional-and-modern-japanese-design-with-our-diverse-gallery-of-wallpaper-images-and-photo-collections-handcrafted-by-yl-software/"><u>Explore Traditional & Modern Japanese Design with Our Diverse Gallery of Wallpaper Images & Photo Collections – Handcrafted by YL Software</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-motorola-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Motorola ?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-motorola-moto-g73-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Motorola Moto G73 5G Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-spotting-the-top-10-covert-instagram-story-spectators/"><u>In 2024, Spotting the Top 10 Covert Instagram Story Spectators</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-hot-30-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Hot 30 5G FRP Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ravpower-24w-usb-car-charger-review-high-power-output-low-quality-construction/"><u>RAVPower 24W USB Car Charger Review: High Power Output, Low-Quality Construction</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resolving-your-wi-fi-woes-effective-network-fix-strategies-by-yl-computing/"><u>Resolving Your Wi-Fi Woes: Effective Network Fix Strategies by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/troubleshooting-guide-why-your-scanner-wont-detect-pc-and-how-to-fix-it-tips-from-yl-computing/"><u>Troubleshooting Guide: Why Your Scanner Won't Detect PC and How to Fix It - Tips From YL Computing</u></a></li>
 </ul></div>
 

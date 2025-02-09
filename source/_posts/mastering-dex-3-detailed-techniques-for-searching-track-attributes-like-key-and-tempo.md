@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2025-01-24T13:03:55.612Z
-updated: 2025-01-27T07:52:43.370Z
+date: 2025-02-05T09:58:11.479Z
+updated: 2025-02-09T10:15:09.014Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,22 +59,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-layers-of-cinematic-dialogue-design/"><u>[New] Layers of Cinematic Dialogue Design</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-best-android-videography-6-must-try-music-videos-apps/"><u>[Updated] Best Android Videography 6 Must-Try Music Videos Apps</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-realme-10t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1728501937877-sd/"><u>無料のSDカードから削除された写真の復元方法</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/classic-stars-and-stripes-desktop-background-professional-imagery-for-windowsmac-from-yl-software/"><u>Classic Stars and Stripes Desktop Background - Professional Imagery for Windows/Mac From YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diagnosing-audio-component-issues-solutions-by-yl-computing/"><u>Diagnosing Audio Component Issues - Solutions by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/easy-steps-for-updating-your-computers-network-properties-via-yls-control-panel-tutorial/"><u>Easy Steps for Updating Your Computer's Network Properties via YL's Control Panel Tutorial</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/elevate-scan-clarity-effective-solutions-for-high-quality-results-by-yl-computings-scanner-fix-guide/"><u>Elevate Scan Clarity! Effective Solutions for High-Quality Results by YL Computing's Scanner Fix Guide</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/futuristic-communication-the-best-5-innovative-ai-prompt-craftors/"><u>Futuristic Communication: The Best 5 Innovative AI Prompt Craftors</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-diagnose-and-fix-unexpected-computer-restarts-with-expert-advice-from-yl-software/"><u>How to Diagnose & Fix Unexpected Computer Restarts with Expert Advice From YL Software</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-resolve-microsoft-wi-fi-display-connection-problems-under-windows-10/"><u>How to Resolve Microsoft Wi-Fi Display Connection Problems Under Windows 10</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-windows-8-guide-to-powerful-movie-maker-editing-techniques/"><u>In 2024, The Windows 8 Guide to Powerful Movie Maker Editing Techniques</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-cmd-a-comprehensive-guide-to-eliminating-files-and-directories-in-windows-n-11/"><u>Mastering CMD: A Comprehensive Guide to Eliminating Files and Directories in Windows N 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/overcoming-setup-challenges-for-your-audio-hardware-tips-from-yl-software-experts/"><u>Overcoming Setup Challenges for Your Audio Hardware: Tips From YL Software Experts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-identifying-and-fixing-memory-issues-on-your-windows-pc-tech-tips-by-yl-computing/"><u>Step-by-Step Guide: Identifying & Fixing Memory Issues on Your Windows PC - Tech Tips by YL Computing</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-next-evolution-in-wearables-apple-watch-series-8s-release-info-specifications-and-cost-breakdown/"><u>The Next Evolution in Wearables: Apple Watch Series 8'S Release Info, Specifications & Cost Breakdown</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-softwares-ultimate-trick-for-changing-your-computers-interface-language/"><u>YL Software's Ultimate Trick for Changing Your Computer's Interface Language</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-are-opinions-on-goods-compensated-in-videos-in-2024/"><u>[New] Are Opinions on Goods Compensated in Videos, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/anish-annoying-ads-instantly-with-these-7-best-android-tools/"><u>[New] Banish Annoying Ads Instantly with These 7 Best Android Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-social-media-sphere-speaking-up-to-fans/"><u>[New] The Social Media Sphere Speaking Up to Fans</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-seamless-zoom-integration-joining-and-scheduling-made-simple/"><u>2024 Approved Seamless Zoom Integration Joining & Scheduling Made Simple</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-the-ultimate-matchmaker-toolkit/"><u>ChatGPT: The Ultimate Matchmaker Toolkit</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ensuring-optimal-graphics-card-performance-a-guide-by-yl-computing-and-yl-software/"><u>Ensuring Optimal Graphics Card Performance: A Guide by YL Computing and YL Software</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/global-collaboration-easeus-expertise/"><u>Global Collaboration EaseUS Expertise</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-itel-s23-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Itel S23 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-spark-10-4g-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Spark 10 4G.</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/identifying-signs-of-a-defective-graphics-card-insights-from-yl-computing/"><u>Identifying Signs of a Defective Graphics Card: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-crypto-assets-top-strategies-revealed-by-professionals-at-yl-computing-and-yl-software/"><u>Mastering Crypto Assets: Top Strategies Revealed by Professionals at YL Computing and YL Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resetting-your-folders-to-original-layout-a-guide-by-yl-computing-step-by-step-tutorial/"><u>Resetting Your Folders to Original Layout: A Guide by YL Computing - Step-by-Step Tutorial</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/solving-image-clarity-issues-in-scanners-insights-from-yl-software-experts/"><u>Solving Image Clarity Issues in Scanners: Insights From YL Software Experts</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-guide-to-premium-video-capture-devices-for-xbox/"><u>Ultimate Guide to Premium Video Capture Devices for Xbox</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unique-galaxy-inspired-hipster-photo-backgrounds-for-pc-laptops-powered-by-yl-software-solutions/"><u>Unique Galaxy-Inspired Hipster Photo Backgrounds for PC, Laptops – Powered by YL Software Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/updating-your-windows-11-sound-card-drivers-a-step-by-step-guide-tips-from-yl-computing/"><u>Updating Your Windows 11 Sound Card Drivers: A Step-by-Step Guide - Tips From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-softwares-ultimate-tutorial-for-accessing-and-playing-videos-on-smartphones/"><u>YL Software's Ultimate Tutorial for Accessing and Playing Videos on Smartphones</u></a></li>
 </ul></div>
 
