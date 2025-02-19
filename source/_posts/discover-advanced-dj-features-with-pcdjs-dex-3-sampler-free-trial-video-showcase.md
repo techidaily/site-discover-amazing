@@ -1,7 +1,7 @@
 ---
 title: Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase
-date: 2025-02-03T22:53:24.551Z
-updated: 2025-02-08T21:50:03.546Z
+date: 2025-02-13T21:59:24.009Z
+updated: 2025-02-19T01:48:12.100Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,19 +46,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/-streamlined-system-for-scrutinizing-youtube-subscriber-profits-3-step-guide-for-2024/"><u>[New] A Streamlined System for Scrutinizing YouTube Subscriber Profits 3-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-checklist-for-professional-youtube-clips/"><u>[New] The Ultimate Checklist for Professional YouTube Clips</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/2-will-a-full-ios-factory-restore-erase-all-content-and-settings-from-my-iphone-once-and-for-all/"><u>2. Will a Full iOS Factory Restore Erase All Content and Settings From My iPhone Once and for All?</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/iphonewindows4/"><u>如何有效地将iPhone数据同步到Windows系统（4种方式）📱➡️🖥️</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/balancing-act-camera-gimbals-for-drones-for-2024/"><u>Balancing Act Camera Gimbals for Drones for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/free-backup-solutions-exploring-the-best-freeware-options-for-windows-7-system-safeguarding/"><u>Free Backup Solutions: Exploring the Best Freeware Options for Windows 7 System Safeguarding</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/infuse-style-in-vids-3-proven-methods-for-instagram-borders/"><u>Infuse Style in Vids 3 Proven Methods for Instagram Borders</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/iphoneandroids-leading-vr-experiences-ranked/"><u>IPhone/Android's Leading VR Experiences Ranked</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-gif-accelerator-fast-and-easy-speed-adjustment-tools/"><u>New 2024 Approved GIF Accelerator Fast and Easy Speed Adjustment Tools</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solutions-rapides-pour-resoudre-lerreur-dacces-interdite-sur-un-hdd-externe-un-guide-complet/"><u>Solutions Rapides Pour Résoudre L'Erreur D'Accès Interdite Sur Un HDD Externe : Un Guide Complet</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/by-step-imovie-videos-on-your-youtube-channel-for-2024/"><u>Step-by-Step IMovie Videos on Your YouTube Channel for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/transferer-des-donnees-en-toute-securite-clonage-de-hdd-et-ssd-vers-un-nouveau-disque-a-vitesse-nvme/"><u>Transférer Des Données en Toute Sécurité : Clonage De HDD Et SSD Vers Un Nouveau Disque À Vitesse NVMe</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-future-how-your-upcoming-laptop-could-thrive-on-an-innovative-intel-ai-processor-discover-astounding-advantages/"><u>Unveiling the Future: How Your Upcoming Laptop Could Thrive on an Innovative Intel AI Processor - Discover Astounding Advantages!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mbr-gptwindows-11-hddssd/"><u>ソリューション：MBR ドライブをGPTでフォーマットし、Windows 11のコピーが完了: HDDからSSDへ</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-dish-on-titles-creative-concepts-for-cookery-vids-for-2024/"><u>[New] Dish on Titles Creative Concepts for Cookery Vids for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-step-by-step-guide-to-perfecting-the-art-of-podcast-naming/"><u>[Updated] A Step-by-Step Guide to Perfecting the Art of Podcast Naming</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-explore-8-inexpensive-virtual-gatherings-mac-and-windows-compatibility/"><u>[Updated] In 2024, Explore 8 Inexpensive Virtual Gatherings Mac & Windows Compatibility</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-master-mac-gif-archiver/"><u>2024 Approved Master Mac GIF Archiver</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/best-free-full-version-windows-1110-disc-ripper-apps-top-picks/"><u>Best Free Full-Version Windows 11/10 Disc Ripper Apps: Top Picks</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/best-methods-to-install-the-av1-video-codec-extension-on-your-pc-windows-10-and-11/"><u>Best Methods to Install the AV1 Video Codec Extension on Your PC (Windows 10 & 11)</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/celebrate-with-winxdvd-exclusive-18th-year-offer-huge-bundles-at-lowest-prices-plus-bonus-presents/"><u>Celebrate with WinXDVD - Exclusive 18Th Year Offer: Huge Bundles at Lowest Prices + Bonus Presents</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-erase-your-presence-on-tiktok-a-comprehensive-walkthrough/"><u>How To Erase Your Presence on TikTok – A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-asus-rog-phone-7-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Asus ROG Phone 7?</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725285777023-macdvd/"><u>Mac用の簡単なDVDコピー手順：フリーソフトウェアによる完全ガイド</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-and-easy-remedies-resolving-itunes-error-14-within-minutes-top-10-methods/"><u>Quick & Easy Remedies: Resolving iTunes Error 14 Within Minutes - Top 10 Methods</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-13-free-dvd-player-apps-compatible-with-windows-10-and-11-your-comprehensive-guide/"><u>Top 13 Free DVD Player Apps Compatible with Windows 10 and 11: Your Comprehensive Guide</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/xmedia-recode6/"><u>エラーが起こった時にXMedia Recodeエンコードで使うことが薦められる6つの対策</u></a></li>
 </ul></div>
 

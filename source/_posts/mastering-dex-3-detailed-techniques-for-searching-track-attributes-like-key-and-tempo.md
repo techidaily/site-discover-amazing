@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2025-02-05T09:58:11.479Z
-updated: 2025-02-09T10:15:09.014Z
+date: 2025-02-16T19:40:14.275Z
+updated: 2025-02-18T21:52:45.568Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,22 +59,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-are-opinions-on-goods-compensated-in-videos-in-2024/"><u>[New] Are Opinions on Goods Compensated in Videos, In 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/anish-annoying-ads-instantly-with-these-7-best-android-tools/"><u>[New] Banish Annoying Ads Instantly with These 7 Best Android Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-social-media-sphere-speaking-up-to-fans/"><u>[New] The Social Media Sphere Speaking Up to Fans</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-seamless-zoom-integration-joining-and-scheduling-made-simple/"><u>2024 Approved Seamless Zoom Integration Joining & Scheduling Made Simple</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-the-ultimate-matchmaker-toolkit/"><u>ChatGPT: The Ultimate Matchmaker Toolkit</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ensuring-optimal-graphics-card-performance-a-guide-by-yl-computing-and-yl-software/"><u>Ensuring Optimal Graphics Card Performance: A Guide by YL Computing and YL Software</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/global-collaboration-easeus-expertise/"><u>Global Collaboration EaseUS Expertise</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-itel-s23-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Itel S23 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-spark-10-4g-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Spark 10 4G.</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/identifying-signs-of-a-defective-graphics-card-insights-from-yl-computing/"><u>Identifying Signs of a Defective Graphics Card: Insights From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-crypto-assets-top-strategies-revealed-by-professionals-at-yl-computing-and-yl-software/"><u>Mastering Crypto Assets: Top Strategies Revealed by Professionals at YL Computing and YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resetting-your-folders-to-original-layout-a-guide-by-yl-computing-step-by-step-tutorial/"><u>Resetting Your Folders to Original Layout: A Guide by YL Computing - Step-by-Step Tutorial</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solving-image-clarity-issues-in-scanners-insights-from-yl-software-experts/"><u>Solving Image Clarity Issues in Scanners: Insights From YL Software Experts</u></a></li>
-<li><a href="https://games-able.techidaily.com/ultimate-guide-to-premium-video-capture-devices-for-xbox/"><u>Ultimate Guide to Premium Video Capture Devices for Xbox</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unique-galaxy-inspired-hipster-photo-backgrounds-for-pc-laptops-powered-by-yl-software-solutions/"><u>Unique Galaxy-Inspired Hipster Photo Backgrounds for PC, Laptops – Powered by YL Software Solutions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/updating-your-windows-11-sound-card-drivers-a-step-by-step-guide-tips-from-yl-computing/"><u>Updating Your Windows 11 Sound Card Drivers: A Step-by-Step Guide - Tips From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-softwares-ultimate-tutorial-for-accessing-and-playing-videos-on-smartphones/"><u>YL Software's Ultimate Tutorial for Accessing and Playing Videos on Smartphones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-android-screenshots-made-simple-top-8-free-applications-revealed/"><u>[New] In 2024, Android Screenshots Made Simple – Top 8 Free Applications Revealed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-exploring-twittrends-2023s-hot-tweets-uncovered/"><u>[Updated] In 2024, Exploring TwitTrends 2023’S Hot Tweets Uncovered</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transforming-videos-with-unprecedented-clarity-using-vce-22/"><u>[Updated] Transforming Videos with Unprecedented Clarity Using VCE 2.2</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-insightful-interviews-top-15-recruitment-dialogues/"><u>In 2024, Insightful Interviews - Top 15 Recruitment Dialogues</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oppo-a2-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Oppo A2 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-note-30-vip-racing-edition-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Note 30 VIP Racing Edition FRP Bypass</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-depth-review-movavi-vs-microsofts-windows-movie-maker-for-video-editing-enthusiasts/"><u>In-Depth Review: Movavi Vs. Microsoft's Windows Movie Maker for Video Editing Enthusiasts</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-graphics-design-for-windows-vehicle-top-tips-for-developing-stunning-images-in-windows-8-using-just-two-methods/"><u>Mastering Graphics Design for Windows Vehicle = Top Tips for Developing Stunning Images in Windows 8 Using Just Two Methods</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/protect-and-erase-expert-tips-for-thoroughly-sanitizing-secure-digital-drives/"><u>Protect & Erase: Expert Tips for Thoroughly Sanitizing Secure Digital Drives</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/rescuing-secrets-comprehensive-strategies-for-data-recovery-on-bitlocker-protected-disks/"><u>Rescuing Secrets: Comprehensive Strategies for Data Recovery on BitLocker Protected Disks</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-logitech-g933-microphone-troubleshooting-and-fixes/"><u>Revive Your Logitech G933 Microphone: Troubleshooting and Fixes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-from-iphone-7-plus-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue From iPhone 7 Plus</u></a></li>
+<li><a href="https://win-hot.techidaily.com/top-5-superior-anti-malware-solutions-compared-finding-the-best-alternative-to-malwarebytes-on-windows-10/"><u>Top 5 Superior Anti-Malware Solutions Compared: Finding the Best Alternative to Malwarebytes on Windows 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/tutoriel-pratique-comment-gerer-les-operations-de-copie-dynamique-sur-disque-dur-sous-microsoft-windows-versions-11-a-7/"><u>Tutoriel Pratique : Comment Gérer Les Opérations De Copie Dynamique Sur Disque Dur Sous Microsoft Windows (Versions 11 À 7)</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728468433900-wd-smartware/"><u>WD SmartWareと同等の高品質で無料の代用プログラムをご提案</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/wie-man-daten-erfolgreich-von-einer-microsd-karte-auf-eine-andere-ubertragen-kann-detaillierte-anleitung/"><u>Wie Man Daten Erfolgreich Von Einer MicroSD-Karte Auf Eine Andere Übertragen Kann - Detaillierte Anleitung</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/wiederherstellung-von-beschadigten-datentragern-unter-windows-11-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Von Beschädigten Datenträgern Unter Windows 11: Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728470655570-windows-10/"><u>ごみ箱に移動されたファイルの回復方法 - Windows 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728487317064-windows/"><u>ファイル再生キット:Windows新規設定後にデータを回復する方法</u></a></li>
 </ul></div>
 

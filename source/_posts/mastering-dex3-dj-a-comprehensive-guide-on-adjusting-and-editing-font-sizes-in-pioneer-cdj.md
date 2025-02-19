@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX3 DJ: A Comprehensive Guide on Adjusting & Editing Font Sizes in Pioneer CDJ"
-date: 2025-02-03T21:45:44.989Z
-updated: 2025-02-09T02:52:28.959Z
+date: 2025-02-17T17:56:26.528Z
+updated: 2025-02-18T17:23:35.015Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ We’ll still attempt to bring you other helpful Digital DJ and karaoke tips dur
 ##### Make sure to check back early next week for the official PCDJ DEX 3 announcement!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,24 +50,20 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/08/learncoverimage.jpg?fit=53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-zero-to-hero-boosting-youtube-view-count-quickly/"><u>[New] 2024 Approved From Zero to Hero Boosting YouTube View Count Quickly</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unveiling-instagram-reels-10-surprising-insights/"><u>2024 Approved Unveiling Instagram Reels 10 Surprising Insights</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/acoustic-ambiance-in-photo-videos/"><u>Acoustic Ambiance in Photo Videos</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/automatiser-les-sauvegardes-incrementielles-de-votre-disque-dur-externe/"><u>Automatiser Les Sauvegardes Incrémentielles De Votre Disque Dur Externe</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/breathing-life-into-frozen-windows-hibernate/"><u>Breathing Life Into Frozen Windows Hibernate</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/configuring-your-display-preferences-on-windows-10-a-step-by-step-guide-by-yl-computing/"><u>Configuring Your Display Preferences on Windows 10: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/customizing-the-look-of-your-windows-screen-expert-advice-by-yl-software-and-computing-solutions/"><u>Customizing the Look of Your Windows Screen - Expert Advice by YL Software & Computing Solutions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/essential-ae-text-enhancers-guide/"><u>Essential AE Text Enhancers Guide</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/guide-comment-retrouver-les-donnees-supprimees-dun-disque-dur-externe/"><u>Guide : Comment Retrouver Les Données Supprimées D'un Disque Dur Externe ?</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-copy-contacts-from-apple-iphone-13-pro-max-to-sim-drfone-by-drfone-transfer-from-ios/"><u>How to Copy Contacts from Apple iPhone 13 Pro Max to SIM? | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/immerse-yourself-in-segas-greatest-hits-with-official-wallpapers-from-yl-computing/"><u>Immerse Yourself in Sega's Greatest Hits with Official Wallpapers From YL Computing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-from-zeroes-to-heroes-amplifying-your-youtube-following/"><u>In 2024, From Zeroes to Heroes Amplifying Your Youtube Following</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/les-5-facons-efficaces-de-resoudre-les-problemes-copier-coller-sous-windows-11/"><u>Les 5 Façons Efficaces De Résoudre Les Problèmes Copier-Coller Sous Windows 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/les-deux-facons-defendantes-de-sassurer-la-securite-de-votre-windows-10-avec-un-disque-nas-qnap/"><u>Les Deux Façons Défendantes De S'Assurer La Sécurité De Votre Windows 10 Avec Un Disque NAS QNAP</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-accessibility-inserting-captions-into-your-ig-stories-with-ease/"><u>Mastering Accessibility: Inserting Captions Into Your IG Stories with Ease</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/overcoming-low-disk-space-errors-when-performing-windows-server-backups/"><u>Overcoming Low Disk Space Errors When Performing Windows Server Backups</u></a></li>
-<li><a href="https://fox-http.techidaily.com/tunes-terms-and-copyrights-on-instagram-for-2024/"><u>Tunes, Terms, and Copyrights on Instagram for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/visualizing-vibes-with-dex-3-in-pcdj-top-shaders-reviewed/"><u>Visualizing Vibes with DEX 3 in PCDJ - Top Shaders Reviewed!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1-officially-get-started-high-quality-winx-media-hub-rip-and-convert-movies-faster-happier/"><u>1. Officially Get Started: High-Quality WinX Media Hub - Rip & Convert Movies Faster, Happier</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-audiophiles-ultimate-narrative-guides/"><u>2024 Approved Audiophile's Ultimate Narrative Guides</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/3-dvd/"><u>簡単変換 できるオーディオコンバータのベスト3: メモリーカード・DVD・音楽動画からの容易な音声ファイル変換!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/convert-your-avi-videos-for-free-as-mkv-with-easy-steps-in-vlc-player-and-handbrake-software/"><u>Convert Your AVI Videos for Free as MKV with Easy Steps in VLC Player & Handbrake Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725287015293-dvdhddpc/"><u>DVDコレクションをHDDに移行、PCでスムーズなビデオ体験 - 自宅撮影のためのチュートリアル</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725287922709-dvddvd-dvd/"><u>DVDデクリプターでシームレスなDVDバックアップと修正: DVD抽出・編集方法</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-pro-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Pro Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-the-latest-logitech-brio-webcam-drivers-on-windows-10-8-or-7-free-download/"><u>Install the Latest Logitech BRIO Webcam Drivers on Windows 10, 8 or 7 | Free Download</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/memetic-magic-unlock-with-kapwing-creator-for-2024/"><u>Memetic Magic – Unlock with Kapwing Creator for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-free-and-paid-3d-animation-solutions-a-comprehensive-review/"><u>New Free and Paid 3D Animation Solutions A Comprehensive Review</u></a></li>
+<li><a href="https://win-top.techidaily.com/professional-guide-how-to-efficiently-swap-your-windows/"><u>Professional Guide: How to Efficiently Swap Your Windows</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1723808187286-simple-steps-secure-your-xbox-one-with-easy-vpn-setup/"><u>Simple Steps: Secure Your Xbox One with Easy VPN Setup</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-transferring-dvd-content-from-your-computers-hard-drive-to-a-portable-usb-flash-drive-on-pc-and-mac-systems/"><u>Step-by-Step Guide: Transferring DVD Content From Your Computer's Hard Drive to a Portable USB Flash Drive on PC & Mac Systems</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-picks-affordable-non-lenovonon-dell-2-in-1-laptops-to-grab-before-prime-day-insider-tips-from-zdnet/"><u>Top Picks: Affordable, Non-Lenovo/Non-Dell 2-in-1 Laptops to Grab Before Prime Day - Insider Tips From ZDNet</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winxvideo-ai-pro-advanced-video-and-photo-editor-with-upscaling-stabilization-conversion-and-recording-features/"><u>Winxvideo AI Pro – Advanced Video and Photo Editor with Upscaling, Stabilization, Conversion, and Recording Features</u></a></li>
 </ul></div>
 
