@@ -1,7 +1,7 @@
 ---
 title: Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase
-date: 2025-02-13T21:59:24.009Z
-updated: 2025-02-19T01:48:12.100Z
+date: 2025-03-01T19:11:43.955Z
+updated: 2025-03-07T18:48:28.870Z
 tags:
   - product
 categories:
@@ -23,10 +23,6 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage.jpg?fit=573%2C339&ssl=1 339 573 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2014-09-03 10:57:202014-09-03 10:57:20DJ Software Demo Video – Using the DEX 3 Sample Player}
@@ -46,18 +42,14 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-dish-on-titles-creative-concepts-for-cookery-vids-for-2024/"><u>[New] Dish on Titles Creative Concepts for Cookery Vids for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-a-step-by-step-guide-to-perfecting-the-art-of-podcast-naming/"><u>[Updated] A Step-by-Step Guide to Perfecting the Art of Podcast Naming</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-explore-8-inexpensive-virtual-gatherings-mac-and-windows-compatibility/"><u>[Updated] In 2024, Explore 8 Inexpensive Virtual Gatherings Mac & Windows Compatibility</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-master-mac-gif-archiver/"><u>2024 Approved Master Mac GIF Archiver</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-free-full-version-windows-1110-disc-ripper-apps-top-picks/"><u>Best Free Full-Version Windows 11/10 Disc Ripper Apps: Top Picks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-methods-to-install-the-av1-video-codec-extension-on-your-pc-windows-10-and-11/"><u>Best Methods to Install the AV1 Video Codec Extension on Your PC (Windows 10 & 11)</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/celebrate-with-winxdvd-exclusive-18th-year-offer-huge-bundles-at-lowest-prices-plus-bonus-presents/"><u>Celebrate with WinXDVD - Exclusive 18Th Year Offer: Huge Bundles at Lowest Prices + Bonus Presents</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-erase-your-presence-on-tiktok-a-comprehensive-walkthrough/"><u>How To Erase Your Presence on TikTok – A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-asus-rog-phone-7-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Asus ROG Phone 7?</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725285777023-macdvd/"><u>Mac用の簡単なDVDコピー手順：フリーソフトウェアによる完全ガイド</u></a></li>
-<li><a href="https://os-tips.techidaily.com/quick-and-easy-remedies-resolving-itunes-error-14-within-minutes-top-10-methods/"><u>Quick & Easy Remedies: Resolving iTunes Error 14 Within Minutes - Top 10 Methods</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/top-13-free-dvd-player-apps-compatible-with-windows-10-and-11-your-comprehensive-guide/"><u>Top 13 Free DVD Player Apps Compatible with Windows 10 and 11: Your Comprehensive Guide</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/xmedia-recode6/"><u>エラーが起こった時にXMedia Recodeエンコードで使うことが薦められる6つの対策</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capture-perfection-4-methods-of-saving-chromebook-screenshots/"><u>[New] Capture Perfection 4 Methods of Saving Chromebook Screenshots</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-guide-to-tape-twitch-streams-effectively/"><u>[New] In 2024, Guide to Tape Twitch Streams Effectively</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-wireless-microphone-setup-connecting-your-android-or-iphone-to-pc-using-bluetooth/"><u>1. Wireless Microphone Setup: Connecting Your Android or iPhone to PC Using Bluetooth</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/complying-with-dimension-requirements-in-twitter-videos/"><u>Complying with Dimension Requirements in Twitter Videos</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/gratis-solusi-reset-berkas-zip-di-windows-cara-mengenalnya-untuk-versi-windows-10-dan-11/"><u>Gratis Solusi Reset Berkas ZIP Di Windows - Cara Mengenalnya Untuk Versi Windows 10 Dan 11!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-data-protection-a-step-by-step-backup-encryption-manual-for-windows-server-editions/"><u>Mastering Data Protection: A Step-by-Step Backup Encryption Manual for Windows Server Editions</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/mastering-soccer-gaming-see-why-fifa-19-takes-home-the-gold/"><u>Mastering Soccer Gaming: See Why FIFA 19 Takes Home The Gold</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/restaurar-imagenes-borradas-en-tu-onedrive-5-metodos-clave-para-la-recuperacion/"><u>Restaurar Imágenes Borradas en Tu OneDrive: 5 Métodos Clave Para La Recuperación</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/the-ultimate-guide-to-clearing-your-laptop-for-a-new-owner-follow-these-simple-steps/"><u>The Ultimate Guide to Clearing Your Laptop for a New Owner - Follow These Simple Steps!</u></a></li>
 </ul></div>
 

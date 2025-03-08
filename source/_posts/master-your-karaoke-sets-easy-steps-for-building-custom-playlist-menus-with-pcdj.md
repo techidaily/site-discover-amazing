@@ -1,7 +1,7 @@
 ---
 title: "Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ"
-date: 2025-02-14T05:22:05.151Z
-updated: 2025-02-18T16:39:44.909Z
+date: 2025-03-03T16:53:37.110Z
+updated: 2025-03-07T16:57:01.602Z
 tags:
   - product
 categories:
@@ -20,10 +20,6 @@ If you’re new to Karaoki you may not be aware of the various rotation modes av
 As the Karaoki quick-tip tutorial video explains in detail, you simply create a new empty case – and search your files using the built in search tool. Then all you need to do is drag-and-drop from search results into the empty case to populate it. The case will be saved upon closing Karaoki, and there whenever you need to use it in the future.
 
 #### Watch Karaoke Software Quick Tip: Creating Custom Playlists In PCDJ Karaoki
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -44,22 +40,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/03/karaokiquicktip-customlist
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-the-secrets-to-outro-mastery-free-tutorials-1-6/"><u>[New] 2024 Approved Unlocking the Secrets to Outro Mastery (FREE Tutorials 1-6)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pristine-movie-trailer-curated-list/"><u>[New] Pristine Movie Trailer Curated List</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-reinventing-classic-cinema-best-swaps-1-7/"><u>[Updated] Reinventing Classic Cinema Best Swaps #1-7</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-archivists-toolkit-techniques-for-capturing-social-events/"><u>[Updated] The Archivist's Toolkit Techniques for Capturing Social Events</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-premier-list-of-smartphone-compatible-vr-headset/"><u>2024 Approved The Premier List of Smartphone-Compatible VR Headset</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/8-problemlosungsmethoden-daten-wiederherstellen-oder-reparatur-von-speicherkarten-ohne-neuanlegen/"><u>8 Problemlösungsmethoden: Daten Wiederherstellen Oder Reparatur Von Speicherkarten Ohne Neuanlegen</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/comprehensive-guide-how-to-enable-and-validate-tpm-20-for-upgrading-to-windows-11/"><u>Comprehensive Guide: How to Enable and Validate TPM 2.0 for Upgrading to Windows 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effortless-tricks-to-repair-non-responsive-quick-access-in-windows-11/"><u>Effortless Tricks to Repair Non-Responsive Quick Access in Windows 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/guia-paso-a-paso-transferir-datos-de-un-ssd-pequeno-a-uno-mayor-con-windows-11/"><u>Guía Paso a Paso: Transferir Datos De Un SSD Pequeño a Uno Mayor Con Windows 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-restore-missing-lostdir-files-from-your-sd-card-free-methods/"><u>How to Restore Missing Lost.Dir Files From Your SD Card - Free Methods</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/optimizing-chromebook-prime-zoom-features-for-2024/"><u>Optimizing Chromebook Prime Zoom Features for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/pemulihan-gpt-dalam-perspektif-partai-untuk-memperbaiki-daftar-data-dan-keamanan-kami/"><u>Pemulihan GPT Dalam Perspektif Partai: Untuk Memperbaiki Daftar Data Dan Keamanan Kami!</u></a></li>
-<li><a href="https://some-tips.techidaily.com/pixel-vs-iphone-showdown-deciding-between-the-google-pixel-6-pro-and-apples-iphone-13-pro-for-tech-savvy-users/"><u>Pixel vs iPhone Showdown: Deciding Between the Google Pixel 6 Pro and Apple's iPhone 13 Pro for Tech Savvy Users</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solve-the-disk-is-overloaded-issue-for-ms-excel-201020132016-users/"><u>Solve the 'Disk Is Overloaded' Issue for MS Excel 2010/2013/2016 Users</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/step-into-pro-audio-recording-on-your-mac-using-audacity/"><u>Step Into Pro Audio Recording on Your Mac Using Audacity</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-screenplay-scribblers-hub-for-2024/"><u>Top Screenplay Scribblers Hub for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-11104-win-account-recovery-guide/"><u>Windows 11/10で消去されたアカウントを回復する4つのテクニック - Win Account Recovery Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-design-a-gif-joke-giphy-magic/"><u>[New] Design a Gif Joke Giphy Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-video-editing-mastery-leveraging-youtube-then-expanding-beyond/"><u>2024 Approved Video Editing Mastery Leveraging YouTube, Then Expanding Beyond</u></a></li>
+<li><a href="https://win-dash.techidaily.com/achieve-seamless-scansnap-ix500-operation-by-updating-drivers-on-your-pc/"><u>Achieve Seamless ScanSnap iX500 Operation by Updating Drivers on Your PC</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/demystifying-the-process-of-checking-subs/"><u>Demystifying The Process of Checking Subs</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diagnosing-scanner-detection-issues-on-windows-expert-advice-from-yl-software/"><u>Diagnosing Scanner Detection Issues on Windows: Expert Advice From YL Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-sound-to-sight-choosing-between-audio-and-video-media/"><u>From Sound to Sight Choosing Between Audio and Video Media</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722973654487-get-your-system-upgraded-download-the-latest-nvidia-geforce-drivers-compatible-with-windows-11-and-10/"><u>Get Your System Upgraded: Download the Latest Nvidia GeForce Drivers Compatible with Windows 11 & 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-necessary-is-it-to-set-up-antivirus-protection-on-your-pc-insights-by-yl-tech-solutions/"><u>How Necessary Is It to Set Up Antivirus Protection on Your PC? - Insights by YL Tech Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/maximizing-your-pcs-performance-expert-strategies-and-techniques-by-yl-software/"><u>Maximizing Your PC's Performance: Expert Strategies & Techniques by YL Software</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-oppo-find-x6-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Oppo Find X6 Black and White | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/secure-your-digital-wealth-expert-tips-on-storing-cryptocurrencies-with-yl-computing/"><u>Secure Your Digital Wealth: Expert Tips on Storing Cryptocurrencies with YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/solving-memory-malfunctions-discover-why-your-ram-may-be-failing-with-insights-from-yl-technology/"><u>Solving Memory Malfunctions: Discover Why Your RAM May Be Failing with Insights From YL Technology</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-stabilizing-your-dragons-dogma-2-pc-gameplay-experience/"><u>Troubleshooting Tips for Stabilizing Your Dragon's Dogma 2 PC Gameplay Experience</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/understanding-gaming-related-system-crashes-insights-from-yl-computing/"><u>Understanding Gaming-Related System Crashes: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-softwares-complimentary-photoshop-fixer-erase-scratches-from-vintage-images-with-our-no-cost-restoration-service/"><u>YL Software's Complimentary Photoshop Fixer: Erase Scratches From Vintage Images with Our No-Cost Restoration Service</u></a></li>
 </ul></div>
 
